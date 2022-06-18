@@ -1,0 +1,1 @@
+Nothing easy for life
